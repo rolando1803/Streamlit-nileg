@@ -1,0 +1,6 @@
+![image](https://github.com/rolando1803/Streamlit-nileg/assets/55965131/1d4bf941-d1e7-4fd2-890c-cf51033925a5)
+![image](https://github.com/rolando1803/Streamlit-nileg/assets/55965131/c0b6a3e1-7153-4aaa-b9bc-3cc3c7db1736)
+![image](https://github.com/rolando1803/Streamlit-nileg/assets/55965131/e2a6b2d3-ac7e-4cf0-a07f-12062dc19db3)
+![image](https://github.com/rolando1803/Streamlit-nileg/assets/55965131/b3c74823-eeb4-4766-9bdb-6fb6b4d2c0af)
+![image](https://github.com/rolando1803/Streamlit-nileg/assets/55965131/ba68e8c9-adf0-4c34-8720-b9f46e7a5c58)
+![image](https://github.com/rolando1803/Streamlit-nileg/assets/55965131/0ef62451-699e-42f8-b1ec-8b8b7f371d03)
